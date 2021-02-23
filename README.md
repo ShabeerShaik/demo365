@@ -23,4 +23,4 @@
 
 !(alt)(https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSmcOf9pU5vJIHIlSTUasYTsw1npFimzgE3QA&usqp=CAU)
 
-!(alt)(https://1847884116.rsc.cdn77.org/telugu/news/jathi-rathnalu-motion-poster-1f3.jpg)
+!(alt)(https://upload.wikimedia.org/wikipedia/en/7/7e/Jathi_Ratnalu_poster.jpg)
